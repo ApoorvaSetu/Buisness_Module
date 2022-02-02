@@ -8,7 +8,7 @@ It frustrates us that we haven't been as successful in India yet."
 According to Statista.com, Hotstar is the most widely used and the topmost OTT platform, reasons being- Cheaper subscription rate, streams cricket that most of  
 the Indians watch, have a lot of content in regional languages.
 
-Even Amazon prime video, being an American company, is doing better than Netflix. 
+Amazon prime video, being an American company, is doing better than Netflix. 
 
 Why is Netflix not working well in India then?
 
